@@ -1,4 +1,4 @@
-#  
+#  smart Script for easter tap simulator is the best easter tap simulator Script, featuring unlimited stamina and auto-upgrade. Safe and powerful for
 
 
 
